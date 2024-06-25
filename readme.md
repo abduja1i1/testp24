@@ -1,0 +1,1 @@
+## Test p24 guruhining birinchi darsida ochildi
